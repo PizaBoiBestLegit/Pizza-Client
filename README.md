@@ -1,2 +1,2 @@
 # Pizza-Client
-Qol single player mod
+https://discord.gg/neu to see all changelogs.
